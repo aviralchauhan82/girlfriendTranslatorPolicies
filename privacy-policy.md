@@ -18,7 +18,7 @@ We use these services:
 
 ## Contact
 For any questions about this Privacy Policy, you can contact us at:
-- Email: [Your Email]
+- Email: [aviralchauhan82@gmail.com]
 
 ## Changes to This Policy
 We may update this policy as needed. You should check this page occasionally for any changes.
